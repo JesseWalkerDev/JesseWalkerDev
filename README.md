@@ -52,7 +52,7 @@
 • Forgets important assignments
 • Awesome, amazing and humble
 • Forgot what to write
-• Only one with a consciousness <!--(I'm kidding)-->
+• Only one with a consciousness
 • <li> unordered list enjoyer </li>
 • Wondering what to do
 • Misplaces jellyfish
