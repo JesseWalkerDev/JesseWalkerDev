@@ -73,6 +73,7 @@
 • Inhabits a deterministic world
 • Exclusively listens to vgm
 • Floating by
+• Very evil (muahahaha)
 • To be continued
 ```
 
