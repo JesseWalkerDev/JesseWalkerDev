@@ -4,7 +4,7 @@
 • Actively procrastinating
 • Loves & appreciates you
 • Drinks lava lamps
-• Little lost puppy
+• Lost little puppy
 • Will leave you on read
 • Nests parenthetical statements
 • Abandons projects
